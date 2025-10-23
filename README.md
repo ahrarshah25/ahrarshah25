@@ -48,7 +48,7 @@ My goal is to become a **Full Stack Web Developer** 🚀
 ---
 
 ## 📫 Connect With Me
-- 💬 Instagram: [@ahrarshah25](https://instagram.com/ahrarshah25)  
+- 💬 Gmail: [ahrar.0932@gmail.com](ahrar.0932@gmail.com)  
 - 🌐 GitHub: [@ahrarshah25](https://github.com/ahrarshah25)
 
 ---
